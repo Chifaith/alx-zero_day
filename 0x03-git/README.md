@@ -1,1 +1,1 @@
-Grit and growth
+Grit and growth mindset 
